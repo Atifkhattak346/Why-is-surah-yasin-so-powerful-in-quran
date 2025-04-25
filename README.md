@@ -5,7 +5,7 @@ Surah Yasin, often referred to as the **"Heart of the Quran,"** holds a special 
 
 ---
 
-## [What is Surah Yasin](https://surahyasin.org/surah-yasin/)?  
+## What is Surah Yasin?  
 
 Surah Yasin is the **36th chapter** of the Quran, consisting of **83 verses**. It is a Makki Surah, revealed in Mecca, and is often recited for blessings, guidance, and protection. The Surah addresses themes such as the **Oneness of Allah**, the **Day of Judgment**, and the **importance of faith**.  
 
