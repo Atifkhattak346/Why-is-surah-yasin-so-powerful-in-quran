@@ -22,7 +22,7 @@ Surah Yasin is the **36th chapter** of the Quran, consisting of **83 verses**. I
 
 ## Surah Yasin: Arabic Verses with Urdu and English Translations  
 
-Let’s explore some of the most significant verses from Surah Yasin, along with their Urdu and English translations.  
+Let’s explore some of the most significant verses from [Surah Yasin](https://surahyasin.org/surah-yasin/), along with their Urdu and English translations.  
 
 ---
 
